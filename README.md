@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there my name is Zora, an IT specialist👋
 
 <!--
 **Zgachette1/Zgachette1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
